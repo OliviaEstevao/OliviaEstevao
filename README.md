@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil 💙💙
 
-OliviaEstevao
+Meu Nome é OliviaEstevao
 
 Estou estudando na *Alura*
 
